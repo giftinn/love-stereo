@@ -109,16 +109,10 @@ html:`
 
 <span class="signal">TRANSMISSION START</span><br><br>
 
-TRANSMISSION START
+Happy mensive sayangku, Jonarthen Maxrefucell. Selamat ketemu lagi di tanggal 15, sekarang udah yang ke-8 kali! Aku bangga banget aku bisa ngelewati banyak hal sama kamu sampe hari ini. Kamu selalu berhasil bikin aku jatuh cinta sejatuh-jatuhnya, 
+bikin aku selalu senang dan aman di pelukan kamu. Makasih karena selalu mengusahakan banyak hal yang terbaik buat aku sampe sekarang. Like i always said, you have the prettiest pupils in this world. I hope you never get tired of me, never left any love or attention from me. 
+You will always loved by everything on me. I love you for whoever you are, thank you for always taking care of me, mas. You are incredibly special person to me. I heart you, endlessly.
 
-Sometimes I wonder if you notice how softly you exist inside my universe. Sometimes I wonder if you notice how softly you exist inside my universe.
-Sometimes I wonder if you notice how softly you exist inside my universe.
-
-Sometimes I wonder if you notice how softly you exist inside my universe. Not loud. Not chaotic.
-
-But like late night radio waves that stay playing even when the world sleeps.
-
-END SIGNAL
 <span class="signal">END SIGNAL</span>
 
 </div>
